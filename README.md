@@ -8,4 +8,5 @@ Un court rapport a ainsi été préparé pour détailler le travail réalisé.
 
 Le lien du dépôt GitHub a été transmis via Google Classroom, comme demandé.
 
-Cordialement,
+Cordialement
+Mahassine Boufatah Akalay.
